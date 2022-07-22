@@ -81,12 +81,8 @@ animal crossing
 
 https://www.vice.com/en/article/z3bjga/this-tech-conference-is-being-held-on-an-animal-crossing-island
 
-
 Wordle
 https://www.denofgeek.com/games/best-daily-games-wordle-clones-spin-offs/
-
-
-Hades
 
 ## The community
 itch.io
